@@ -17,4 +17,3 @@ ___
 
 hellloooo**ooooo**
 
-![Image](///var/folders/pp/2hyngvz57hq0850j6r1xhkp40000gn/T/TemporaryItems/NSIRD_screencaptureui_TmAmXt/Screen%20Shot%202022-04-08%20at%207.33.02%20PM.png)
